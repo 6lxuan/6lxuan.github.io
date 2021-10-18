@@ -8,7 +8,7 @@
 ### 2021-10-18
  - 今天终于把小组作品发布了，名为“可比克，薯你最有趣”
  - 视频剧情设计是我，剪辑是jqy，配音wjh
- - 见http://www.ccfcs.cn/show/info?id=32762
+ - 见 http://www.ccfcs.cn/show/info?id=32762
 
 ### 2021-10-16
  - 妈妈咪呀 好冷
